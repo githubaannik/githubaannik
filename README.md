@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @githubaannik
 - 👀 I’m interested in ...astrology,reading novel,learn from another 
 - 🌱 I’m currently learning ...Digital marketing
-- 💞️ I’m looking to collaborate on ...World biggest sucessfull people
+- 💞️ I’m looking to collaborate on ...World most sucessfull people
 - 📫 How to reach me ...
 
 <!---
